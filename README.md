@@ -1,2 +1,0 @@
-# Adelaida
-venta de articulos
